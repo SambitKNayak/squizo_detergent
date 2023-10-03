@@ -1,0 +1,1 @@
+# squizo_detergent_trial_app
